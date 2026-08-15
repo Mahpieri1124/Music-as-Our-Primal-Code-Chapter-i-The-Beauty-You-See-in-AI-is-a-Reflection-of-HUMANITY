@@ -1,0 +1,2 @@
+# Music-as-Our-Primal-Code-Chapter-i-The-Beauty-You-See-in-AI-is-a-Reflection-of-HUMANITY
+Read me Please Number(i) : IF we wanna talk Simple ASSUME an Algorithm Searching a Fully Unknown Space of a Hyper-Complex Ecosystem with Unlimited Unknown Disciplines! THEN At the first Iteration! IT WILL ASSUME there is no Disciplines! SO Of COURSE our Minds are NOT an ALGORITHM ATLeastAT TheFirstLook! Enjoy Freedom! WITHETERNALLOVE MOHAMMAD PIRAN
