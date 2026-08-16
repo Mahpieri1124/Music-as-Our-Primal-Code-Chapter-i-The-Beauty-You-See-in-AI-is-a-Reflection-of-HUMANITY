@@ -24,7 +24,7 @@ August 2026.
 
 
 
-**Research Cluster I — Question 1**
+# **Research Cluster I — Question 1**
 
 # Convergent Global Futures: Do All Centers of Power Seek a Better Future for the World?
 
