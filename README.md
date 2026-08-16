@@ -4,8 +4,8 @@
 > Independent Interdisciplinary Researcher
 > Former PhD Candidate(2015)
 
-Welcome to this repository. This project explores deep connections and complex ecosystems through an open, adaptive, and transdisciplinary approach.
-Zenodo DOI : 10.5281/zenodo.21960051
+> Welcome to this repository. This project explores deep connections and complex ecosystems through an open, adaptive, and transdisciplinary approach.
+> Zenodo DOI : 10.5281/zenodo.21960051
 ---
 
 ## 🧠 Scientific Note: Exploring the Unknown
